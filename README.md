@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @laulauasia
-- 👀 I’m interested in ...
+- 👀 I’m currently interested in Marketing, AI and Automations
 - 🌱 I’m currently learning Java, Python
 - 💞️ I’m looking to collaborate on ... any digital marketing projects
 - 📫 How to reach me ... laulau.asia@gmail.com
